@@ -1,2 +1,1 @@
-# xiedingyi.github.io
-Norman博客
+# guohui520.github.io
